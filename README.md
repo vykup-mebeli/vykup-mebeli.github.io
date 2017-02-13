@@ -1,1 +1,0 @@
-# vykup-mebeli.github.io
